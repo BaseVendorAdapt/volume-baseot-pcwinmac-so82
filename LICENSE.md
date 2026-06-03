@@ -1,4 +1,4 @@
-# 
+# Automatique volume-based trading bot plugins pour Mac OS | Top volume-based trading bot plugins pour PC Windows. Avec visualisation de données et indexation de la blockchain — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
